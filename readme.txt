@@ -1,1 +1,3 @@
 olvasd el
+
+NE SZEGYELLD A BOROD SZINET!
